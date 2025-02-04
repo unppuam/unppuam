@@ -1,3 +1,3 @@
 ### Intro
 
-I am an undergraduate at UC Berkeley, studying mathematics.
+김윤상; Kim, Yoonsang.
